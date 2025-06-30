@@ -12,6 +12,6 @@ We use this information strictly to fulfill your orders and communicate with you
 Your information is stored securely and is not shared with any third-party without your consent.
 
 ## Contact Us
-If you have questions, email us at [your@email.com].
+If you have questions, email us at [Sugunesh0304@gmail.com].
 
 _Last updated: June 30, 2025_
